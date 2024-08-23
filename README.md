@@ -5,4 +5,11 @@ estou estudando na alura
 estou me desenvolvendo na linguagem javaScript                
 ultilizo esse espaço para minha organização e compartilhamento dos meus projeto densevolvidos 
 
-### voce 
+
+### você  entrar em contato comigo 
+
+johnatanmoraesdeoliveira@gmail.com 
+
+Johnata24@
+
+johnatanmoraesdeoliveira@gmail.com 
